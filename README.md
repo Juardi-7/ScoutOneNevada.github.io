@@ -1,1 +1,1 @@
-# ScoutOneNevadagithub.io
+# ScoutOneNevada.github.io
